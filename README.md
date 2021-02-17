@@ -10,4 +10,5 @@ That's where I picked the need for spiritual practice and am grateful for it bec
 
 # is it time to hire a CPA to do my taxes?
 I switched from turbo tax to a CPA at the same time that I was transitioning my mindset from being a W2 worker to planning for a future where working would be optional. This included strategies to reduce my taxable income, leveraging real estate investing, and being a business owner. I am 25% into my journey. 
+
 Having a CPA has helped me rely on someone to bounce ideas as I go through my journey. Most people view a CPA as someone to talk to once a year. I use my CPA through the year as I start planning opportunities to grow my wealth.
